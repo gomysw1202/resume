@@ -10,4 +10,4 @@
 </br>
 
 ## :pushpin: Contact
-- Email: gomy
+- Email: gomysw1202@gmail.com
